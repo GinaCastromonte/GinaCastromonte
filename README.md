@@ -1,6 +1,6 @@
 ## Hi there 👋, I'm Gina 
 
-## A Full-Stack Software Engineer from Norwalk, CT 
+## A Full-Stack Software Engineer 
 
 📧 Email: gcastromonte@gmail.com
 
