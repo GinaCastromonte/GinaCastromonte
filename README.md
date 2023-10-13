@@ -6,7 +6,7 @@
 
 👯 Connect: https://www.linkedin.com/in/ginacastromonte/
 
-🏃🏻‍♀️ Fun fact: While working as a Veterinary Tech, I've had the privilege of assisting with some unique and heartwarming animal rescue missions.
+🏃🏻‍♀️ Fun fact: While working as a Veterinary Tech, I've had the privilege of assisting with the most unique and heartwarming animal rescue missions.
 
 <br />
 
