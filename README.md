@@ -6,9 +6,10 @@
 
 👯 Connect: https://www.linkedin.com/in/ginacastromonte/
 
-🏃🏻‍♀️ Fun fact: While working as a Veterinary Tech, I've had the privilege of assisting with the most unique and heartwarming animal rescue missions.
+📁 Check out my Portfolio Website 🌐: https:www.gcastromonte.com
 
-<br />
+🏃🏻‍♀️ Fun fact: After many years of being a dog whisperer, I now get to be a code whisperer!
+
 
 ## 🧰 Languages and Tools:
 
