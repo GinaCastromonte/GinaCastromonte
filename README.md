@@ -6,7 +6,7 @@
 
 👯 Connect: https://www.linkedin.com/in/ginacastromonte/
 
-📁 Check out my Portfolio Website 🌐: https:www.gcastromonte.com
+📁 Check out my Portfolio Website 🌐: https://www.gcastromonte.com
 
 🏃🏻‍♀️ Fun fact: After many years of being a dog whisperer, I now get to be a code whisperer!
 
