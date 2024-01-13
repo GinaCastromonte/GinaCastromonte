@@ -1,4 +1,6 @@
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=23&pause=1000&random=false&width=435&lines=Hi+there%2C+I'm+Gina+Castromonte;A+Fullstack+Software+Engineer+)](https://git.io/typing-svg)
+
+
 📧 Email: gcastromonte@gmail.com
 
 👯 Connect: https://www.linkedin.com/in/ginacastromonte/
