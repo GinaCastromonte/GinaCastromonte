@@ -12,7 +12,7 @@
 
 ## 🧰 Languages and Tools:
 
-https://user-images.githubusercontent.com/25181517/189716630-fe6c084c-6c66-43af-aa49-64c8aea4a5c2.png
+
 
 <p align = "left">
   
