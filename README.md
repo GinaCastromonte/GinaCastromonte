@@ -1,5 +1,5 @@
 
-![Header](./github-header-image.png)
+![Header](./Githubheader.png)
 
 📧 Email: gcastromonte@gmail.com
 
